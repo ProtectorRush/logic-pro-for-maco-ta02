@@ -1,4 +1,4 @@
-
+Logic Pro for macOS ultimate Overlay: batch-rendering & lower-thirds is the best Logic Pro for macOS overlay, featuring batch-rendering and lower-thirds. Safe, efficient, and
 
 
 
